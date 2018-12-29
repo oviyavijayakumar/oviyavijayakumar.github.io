@@ -1,1 +1,2 @@
 # An Amazing Adventure
+There was three brothers named Zach,Jack and Jonah. They are my cousins. Zach is the youngest while Jonah is the oldest. One busy day, Zach wandered into the woodswhile Jonah was relaxing and Jack was freaking out as he could not get a dance step right.  Their mother[my aunt] Melanie , called out for Zach. Zach was only 7 so he might get himself into trouble.Jonah said he might be in the kitchen to get a snack. They checked but could not find him."Well my prediction was wrong!" said 12 year old Jonah laughing.Jack said
